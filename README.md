@@ -1,1 +1,0 @@
-# wordsworthai.github.io
